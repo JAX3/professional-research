@@ -16,4 +16,4 @@ Ubisoft announced that The Division 2’s open beta will happen at the beginning
 
 The open beta will be available for PC, PS4 and Xbox One players from March 1-4. This will give Ubisoft just under two weeks to make final tweaks to The Division 2 prior to its official release on March 15, 2019.
 ```
-This allows Ubisoft to  make adjustment before release
+This allows Ubisoft to  make adjustment before releasing the game to the public it also allows them to add anything extra to the game that wasn't availiable during the beta period it also allows critics to get their hands on the game in a more public way with places like iGN and metacritic.
